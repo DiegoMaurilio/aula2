@@ -1,0 +1,1 @@
+ainda bem que amanha e sexta feira
